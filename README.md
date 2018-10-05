@@ -13,4 +13,4 @@ Irish Switch:
 Black Jack:  
 378 victories (37.8%)  
 
-which prove a great amount of success.
+which prove a great amount of success!
